@@ -1,0 +1,5 @@
+# OBJETIVO ESTRATÉGICO
+
+> ## **OBJETIVOS ESTRATEGICOS INSITUCIONALES**
+
+![](.gitbook/assets/oe1.jpg)
